@@ -3,4 +3,4 @@
 
 ## ✨ Fun Facts
 - 🎮 Gamer in free time. (Pls hit me up if you play TFT or Wild Rift)
-- 😺 My cat bulbul is my profile picture
+- 😺 Bulbul is my cat, hes just a chill guy _not really tho_
